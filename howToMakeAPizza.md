@@ -4,4 +4,4 @@
 4. 500gr queso
 5. una cucharada de polvo de ornear
 6. Amasar 30 minutos.
-7. 15 minutos en el horno.
+7. 20 minutos en el horno.
